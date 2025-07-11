@@ -18,4 +18,4 @@
 结语  
 日本AV的免费观看已经不再是难事，选择一个安全、快捷的平台，无论是通过在线播放，还是下载保存，都能带给用户极致的观看体验。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/nff4046866/xyzav06 )</span>
